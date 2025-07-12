@@ -60,14 +60,14 @@ https://github.com/DARKSILENCE04/DARK-SILENCE-MD
 
 -----------
 
-**`FORK 🍴 AND STAR ⭐ DARK-SILENCE-MD`**
+**`FORK 🍴 AND STAR ⭐ DARK-SILENCE-MD`**DARK-SILENCE-MD~fE8gDbrL#UFHwynFjsLdyc0TvoMyslF44WKJKXYw6xt_iVA3SxGc
 
   <a href="https://github.com/DARKSILENCE04/DARK-SILENCE-MD/fork"><img title="DARK-SILENCE-MD" src="https://img.shields.io/badge/FORK-DARK%20SILENCE%20MD-BOTh?color=indigo&style=for-the-badge&logo=stackshare"></a>
   
 ### <br>02.  ❖ GET SESSION-I'D ❖
 
 `✠ IF YOU DON'T HAVE YOUR SESSION_ID SO U CAN GET IT CLICK ON SESSION_ID BUTTON AND PASTE YOUR NUMBER With COUNTRY CODE EXAMPLE:92309xxxxxx THEN YOU CAN GET YOUR SESSION_ID ✠`
-
+DARK-SILENCE-MD~fE8gDbrL#UFHwynFjsLdyc0TvoMyslF44WKJKXYw6xt_iVA3SxGc
 
 > **1. PAIR CODE SESSION ID**
 
